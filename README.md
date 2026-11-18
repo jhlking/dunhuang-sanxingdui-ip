@@ -17,6 +17,10 @@
 
 项目的核心创新在于：不是「把文物搬上屏幕」，而是「让文物长出人格」——通过原创角色与情感叙事，把遥远的文化遗产转化为有温度、有记忆点的现代 IP。
 
+**English**
+
+*Silk Road Illusion* is a national-trend IP built around two world-class cultural heritages — the Dunhuang Mogao Caves and Sanxingdui — designed for overseas cross-border e-commerce and exploring the fusion of traditional culture with commercial value. It creates two original characters, the plump flying apsara "Lingyu" and the vertical-eyed folding fan "Tongtong", whose emotional arc from insecurity to transformation to self-expression carries the message that "Eastern beauty is more than one standard." Rather than simply putting artifacts on screen, the project gives cultural heritage a personality, turning distant heritage into a warm, memorable modern IP through original characters and emotional storytelling.
+
 ---
 
 ## 文化溯源 · Cultural Roots
